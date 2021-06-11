@@ -1,1 +1,1 @@
-# jedem jaja
+# nikad nisam pipnuo zenu
